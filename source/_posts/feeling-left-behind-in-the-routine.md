@@ -3,6 +3,7 @@ title: Feeling left behind in the routine
 date: 2025-04-20 23:21:54
 tags:
 - thoughts
+- english
 ---
 Hey! Finally set this blog _tingy_ up.
 
