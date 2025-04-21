@@ -17,7 +17,7 @@ I started comparing myself with the people around me, and with the people on the
 ### In the end, I realized that
 - Everybody is different, I shouldn't compare myself with other people.
 - Social media is taking my energy, and time. Yet, it also damages my perception of normal. 
-- Doomscrolling rotts my brain. It's literally like an addiction if it is not controlled properly.
+- Doomscrolling rots my brain. It's literally like an addiction if it is not controlled properly.
 - I should prioritize myself in my life. Love yourself.
 - Taking care of the health of my body is crucial. 
 - Sleep schedule is more important than I imagine.
@@ -30,7 +30,7 @@ I also realized that maybe the most people around me doesn't really resonate wit
 ### I'm currently trying these
 - I try to focus on myself more. I do night walkings for an hour somedays.
 - Freezed Instagram account. The reason for that is even though I delete the app before, I always found myself logging into it with browser. I also didn't want to be seen there. When people continue seeing me exist, they expect me to answer their messages, they can get offended for unreplied messages...
-- This one will sound contraversial, but I have shut my smartphone down and switched to a old phone for call and SMS only. It has been a month like this and I'm pretty happy about it!
+- This one will sound controversial, but I have shut my smartphone down and switched to a old phone for call and SMS only. It has been a month like this and I'm pretty happy about it!
 - I started being able to confidentally say "No" to people.
 - I try to be careful about what I'm eating.
 - Try to sleep and wake up due to my schedule I organized strictly.
