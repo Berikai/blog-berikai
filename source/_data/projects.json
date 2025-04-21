@@ -1,0 +1,32 @@
+[
+    {
+        "name":"Verdant",
+        "url":"https://soundcloud.com/verdantbass",
+        "desc":"A music project that focuses on creating melodic experimental bass music"
+    },
+    {
+        "name":"Berikai's Card",
+        "url":"https://berikai.dev",
+        "desc":"An interactive card that introduces myself and my work"
+    },
+    {
+        "name":"Berikai's Console",
+        "url":"https://console.berikai.dev",
+        "desc":"Terminal emulator sandbox inside your browser"
+    },
+    {
+        "name":"Bitwig Theme Editor",
+        "url":"https://bitwig.berikai.dev",
+        "desc":"Customize the appearance of the most modular DAW in the world"
+    },
+    {
+        "name":"Bitwig Theme Editor WebUI",
+        "url":"https://bitwig.berikai.dev",
+        "desc":"Interactive visual playground to create and edit themes"
+    },
+    {
+        "name":"WR2 Server Connector",
+        "url":"https://github.com/berikai/wr2-server-connector",
+        "desc":"A simple tool to play World Racing 2 online"
+    }
+]
