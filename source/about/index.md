@@ -1,5 +1,5 @@
 ---
-title: about
+title: About
 date: 2025-04-20 23:29:53
 ---
 My name is *Berkay Eren Konuk*, but I usually go by the names **Berikai** or **Verdant** online.
