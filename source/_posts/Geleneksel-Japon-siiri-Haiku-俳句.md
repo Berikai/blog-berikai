@@ -32,7 +32,7 @@ Hecelere dikkat edin! _fu ru i ke ya (5)_, _ka wa zu to bi ko mu (7)_, _mizu no 
 
 Oldukça tatlı ve eğlenceli duruyor. [Wikipedia](https://tr.wikipedia.org/wiki/Haiku) sayfasından aldığım yukarıdaki çeviride elbette "Şlap!" sesi çevirmenin yerelleştirme çabasının bir ürünü, ki bence oldukça isabetli.
 
-Dünya'da bir çok yerde Japon kültürü ile ilgili etkinliklerde insanlar kendi dillerinden Haiku'lar yazıyormuş. Bu konsept çok eğlenceli ve ilgi çekici olduğu için de öğretmenimiz bizden Türkçe Haiku yazmamızı istemişti. Derste okumak nasip olmadı ama yazdığım üç tanesini burada paylaşmak istedim :)
+Dünyada bir çok yerde Japon kültürü ile ilgili etkinliklerde insanlar kendi dillerinden Haiku'lar yazıyormuş. Bu konsept çok eğlenceli ve ilgi çekici olduğu için de öğretmenimiz bizden Türkçe Haiku yazmamızı istemişti. Derste okumak nasip olmadı ama yazdığım üç tanesini burada paylaşmak istedim :)
 
 ---
 
