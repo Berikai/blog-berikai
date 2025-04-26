@@ -1,7 +1,5 @@
 ---
-title: >-
-  A brief explanation of creating an OpenSSL Certificate Authority (CA) and
-  certificates (certs)
+title: How to create a certificate authority and certificates with OpenSSL 
 date: 2025-04-23 12:53:43
 tags:
 - software
