@@ -12,7 +12,7 @@ Bu blogda hem İngilizce hem de Türkçe'yi dönüşümlü olarak kullanarak, ya
 
 Okuduğum üniversitede zorlunlu ikinci yabancı dil eğitimi alıyoruz ve ben de dil olarak Japonca'yı seçtim, çünkü Japon dili ve kültürünü oldukça etkileyici buluyorum. Geçen haftalarda öğretmenimiz geleneksel bir Japon şiirinden bahsetti ve çok hoşuma gitti.
 
-Şimdi konuşmak istediğim konu geleneksel Japon şiiri, Haiku (俳句).
+### Şimdi konuşmak istediğim konu geleneksel Japon şiiri, Haiku (俳句).
 
 俳 ve 句 kanjileriden oluşan ismini incelersek:
 - 俳: Bu kanji aktör, oyuncu anlamlarına geliyor.
@@ -22,7 +22,7 @@ Kanjiler hakkında öğrenmem gereken çok şey var. Kanjileri birleştirerek be
 
 **Haiku, 5 + 7 + 5 olmak üzere toplamda 17 heceden oluşan geleneksel Japon kısa şiir türüdür.** Bu tür şiirlerde genelde doğa anlatılır. Şair kafasında doğada bulunan herhangi bir sahneyi canlandırır ve bunu kısa bir şekilde betimler.
 
-En çok bilinen Haiku örneği Matsuo Bashō'nun Kurbağa Haikusu'dur.
+### En çok bilinen Haiku örneği Matsuo Bashō'nun Kurbağa Haikusu'dur.
 
     古池や　　　　　　furu ike ya           Eski bir havuz...　　
     蛙飛び込む　　　　kawazu tobikomu       Kurbağa atlar içine,
@@ -33,6 +33,8 @@ Hecelere dikkat edin! _fu ru i ke ya (5)_, _ka wa zu to bi ko mu (7)_, _mizu no 
 Oldukça tatlı ve eğlenceli duruyor. [Wikipedia](https://tr.wikipedia.org/wiki/Haiku) sayfasından aldığım yukarıdaki çeviride elbette "Şlap!" sesi çevirmenin yerelleştirme çabasının bir ürünü, ki bence oldukça isabetli.
 
 Dünyada bir çok yerde Japon kültürü ile ilgili etkinliklerde insanlar kendi dillerinden Haiku'lar yazıyormuş. Bu konsept çok eğlenceli ve ilgi çekici olduğu için de öğretmenimiz bizden Türkçe Haiku yazmamızı istemişti. Derste okumak nasip olmadı ama yazdığım üç tanesini burada paylaşmak istedim :)
+
+### İşte kendi yazdığım üç adet Haiku
 
 ---
 
