@@ -13,6 +13,8 @@ Bir süredir WhatsApp üzerinde bir başıma olduğum bir grupta, içinde bulund
 
 ---
 
+### Nöral Okyanusun Derinliklerinde
+
 Serin bir boşluğa çıkmıştı dar tünellerin sonunda. Kristal sarkıtlar mağara tavanını süslüyordu. Karşısında bulunan minik gölete ara sıra düşen damlaların yankıları duvarlarca yükseliyor ve bir melodiyi mırıldanıyorlardı. Mağaranın derinliklerinden gelen uğultular bir ilahi ile eşlik ediyorlardı bu melodiye. Kristallerin karşısında duran göletteki yansımaları, bir gökyüzü yaratmıştı su yüzeyinde. Yüzeye kuyruklu yıldızlar gibi düşen damlacıkların oluşturduğu dalgalar, yankılanan kutsal tınıya eşlik ediyordu. Zifiri karanlığı aydınlatan bu mavi beyazlığın nereden geldiği belirsizdi. Mağaranın kalbine bir yıldız gömülmüş gibiydi. Her şey aydınlık ve ışıl ışıldı. 
 
 Oldukça soğuk olmasına karşın yüreği şefkatle okşanıyordu sanki. Soğuktan uyuşan sinirleri ve kızaran yüz hatlarıyla bir çeşit sarhoşluğa tutulmuştu. Tüm bu parlaklık gözlerine vurmuştu, ışıl ışıl dönüyorlardı yuvalarında. Mağaranın nefesi ruhuna kadar işledi ve kalbinde bir ferahlık hissetti. Aldığı her nefesle yenilendiğini hissediyordu. İçindeki kötülükleri nefesiyle verip bu büyülü atmosferi kirletmekten çekiniyordu. Parmak uçlarına basarak sessizce yürür gibi, itinayla narince nefesler alıp veriyordu. Dizlerinin bağı çözüldü ve üzerlerine çöktü. 
