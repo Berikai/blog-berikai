@@ -10,7 +10,7 @@ Selamlar, buradaki ilk Türkçe yazımı paylaşıyorum!
 
 Bu blogda hem İngilizce hem de Türkçe'yi dönüşümlü olarak kullanarak, yazmak istediğim duruma uygun olduğunu hissettiğim dili seçip yazabildiğim rahat bir ortam yaratmak istiyorum kendime. Ayrıca ek olarak öğrenme sürecimi pekiştirmek için Japonca yazılar yazmaya da çalışacağım ileride.
 
-Okuduğum üniversitede zorlunlu ikinci yabancı dil eğitimi alıyoruz ve ben de dil olarak Japonca'yı seçtim, çünkü Japon dili ve kültürünü oldukça etkileyici buluyorum. Geçen haftalarda öğretmenimiz geleneksel bir Japon şiirinden bahsetti ve çok hoşuma gitti.
+Okuduğum üniversitede ikinci yabancı dil eğitimi alıyoruz ve ben de dil olarak Japonca'yı seçtim, çünkü Japon dili ve kültürünü oldukça etkileyici buluyorum. Geçen haftalarda öğretmenimiz geleneksel bir Japon şiirinden bahsetti ve çok hoşuma gitti.
 
 ### Şimdi konuşmak istediğim konu geleneksel Japon şiiri, Haiku (俳句).
 
