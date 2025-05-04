@@ -26,7 +26,7 @@ This puts me in the position of a solipsist, in a philosophical. There is a comm
 ### A question known to ask the solipsists
 
 - Q: If the only thing real is yourself, why do you need to tell these things to the people you have in your mind? If I am not real, what is the point of telling these things to me?
-    - A: **Even if nothing is real and everything is an illusion, the experience of it is not.** If the reality is all of these an illusion created by mind, it doesn't change anything from my experience. I still experience happiness, sadness, pain, loneliness, the need to talk etc. It depends on how you define things. If we use the definition for reality and existence of a different philosophy, let's say of phenomenalism, we can call all of these real. Because at that point, the definition of real changes to the things that can be observed. That makes the things called illusion real. It really depends to point of view...
+    - A: **Even if nothing is real and everything is an illusion, the experience of it is not, (based on the perception of it all).** If the reality (all of these) is an illusion created by mind, it doesn't change anything from my experience (**it's better to say "my perception of experience" to be more accurate**). I still experience happiness, sadness, pain, loneliness, the need to talk etc. It depends on how you define things. If we use the definition for reality and existence of a different philosophy, let's say of phenomenalism, we can call all of these real. Because at that point, the definition of real changes to the things that can be observed. That makes the things called illusion real. It really depends to point of view...
 
 **I believe everything in life is relative, so that the truth mind percieves changes with respect to the reference point of view.** Even the perception of life's being relative is relative to the people, lol. It's actually not about which philosophy is real and which is not. **Philosophies are set of different definitions that are positioned in different reference points.** We choose the ones that we correlate with our life and that's it.
 
@@ -34,7 +34,7 @@ For me, the concept of purpose is a product of mind. So, it can be assumed as an
 
 I like to adopt the idea of solipsism inside me to reason the existence. It seems logical for me to take mind as the starting point and state that further of mind is not sure to exist. Yet, it is still exiting to think about all of the possibilities that may have. As a part of this life experience, I adopt the ideas of absurdism and agnosticism. In the life, as a part of the society, I have the ideas of pragmatism, materialism (as a scientific perspective) and such. Whatever the reality is, life is an experience with its own rules and I **try to enjoy the experience** with the way I want it to be, with the values I have built inside. **I want to experience the life as a person that has values, a person sticks to his own values, and a person known to as so by the people around.**
 
-I wish to be able to word my thought better, but I tried my best and proud about it. I really want to express myself precisely when it comes to the perspectives I have about the life. 
+I wish to be able to word my thoughts better, but I tried my best and proud about it. I really want to express myself precisely when it comes to the perspectives I have about the life. 
 
 Hope you enjoyed your stay. Thanks for taking your time!
 
