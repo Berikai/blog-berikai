@@ -56,7 +56,7 @@ I know, I know... It has been a _cliche_ **"I've gone through something and get 
 I try to reduce things in my life that wastes my time and my energy, and replace them with the things that I want to live for. Society tends to not accept unusualities with respect to the members of itself, but I want to fight for it. 
 
 As _E. E. Cummings_ says, 
-**“To be nobody but**
+> **“To be nobody but**
 **yourself in a world**
 **which is doing its best day and night to make you like**
 **everybody else means to fight the hardest battle**
