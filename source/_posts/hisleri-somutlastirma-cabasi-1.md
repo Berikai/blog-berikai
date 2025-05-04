@@ -23,9 +23,9 @@ Geri dönülemeyecek bir yola çıkmıştı. Yapayalnızdı, oldukça derinlerde
 
 Kendisini, bedenini kaplayan bu aydınlığa gömmek istiyordu. Tüm günahları ve sevaplarıyla kendini bırakmak zorundaydı. Cüretkar olmalıydı. Eğer işlediği bir günahsa bile, bu son olacaktı. 
 
-Ellerini iki yana açtı ve ruhunu karşısında görkemli tapınağa üfledi. Verdiği nefes göletin üzerine sürüklendi ve ışıldadı. Su üzerinde ufalanan ışıltılar galaksilerin oluşturduğu bulut kümelerini anımsatıyordu. Bir arada duran ufalanmış ışıltı kümesi, ufalancak bir şey kalmayınca yıldızların uzay boşluğuna dağılması gibi yavaşça dağılmaya başladı. 
+Ellerini iki yana açtı ve ruhunu karşısındaki görkemli tapınağa üfledi. Verdiği nefes göletin üzerine sürüklendi ve ışıldadı. Su üzerinde ufalanan ışıltılar galaksilerin oluşturduğu bulut kümelerini anımsatıyordu. Bir arada duran ufalanmış ışıltı kümesi, ufalancak bir şey kalmayınca yıldızların uzay boşluğuna dağılması gibi yavaşça dağılmaya başladı. 
 
-Kristaller arasından alçalan nurlar kelebekler gibi uçuşup sarmaladı göletin üzerinde dağılan bu ışıltılıyı. Mağaranın ışıltısıyla bir oldular ve ruhuna daha derinlere doğru eşlik ettiler. Geride kalan bedeni kristalleşti ve ışıldadı. Her şey tuzla buz oldu, formlar yok oldu. Madde yoktu artık. Işıltılar ve parıltılar vardı. Her şey tekilliğe indi ve tek bir noktada tek bir beyaz ışık yanıp söndü. İşte o an, kalan son sinapsta yaşanmıştı. O da ölünce tüm nöronlar öldü. 
+Kristaller arasından alçalan nurlar, kelebekler gibi uçuşup sarmaladı göletin üzerinde dağılan bu ışıltıyı. Mağaranın ışıltısıyla bir oldular ve ruhuna daha derinlere doğru eşlik ettiler. Geride kalan bedeni kristalleşti ve ışıldadı. Her şey tuzla buz oldu, formlar yok oldu. Madde yoktu artık. Işıltılar ve parıltılar vardı. Her şey tekilliğe indi ve tek bir noktada tek bir beyaz ışık yanıp söndü. İşte o an, kalan son sinapsta yaşanmıştı. O da ölünce, tüm nöronlar ölmüştü. 
 
 Ölü bir nöral okyanusun derinlerinde gömülü bir atlantisin içine gizlenmiş bu tapınak ebediyen mühürlendi.
 
